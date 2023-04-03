@@ -1,3 +1,0 @@
-sss
-szs
-ss
